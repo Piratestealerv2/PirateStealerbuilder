@@ -1,4 +1,4 @@
-##### [🌍 Discord Server](https://discord.gg/grabber) -  [:gem: Premium](https://discord.gg/grabber) - [🔧 Builder](https://workupload.com/file/zkLndRWabWB) - [💡 Features](https://github.com/Stanley-GF/Arizona#features) 
+##### [🌍 Discord Server](https://discord.gg/grabber) -  [:gem: Premium](https://discord.gg/grabber) - [🔧 Builder](https://workupload.com/file/VyytsQBf9bn) - [💡 Features](https://github.com/Stanley-GF/Arizona#features) 
 
 ### Authors
 - Stanley
